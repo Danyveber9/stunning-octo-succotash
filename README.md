@@ -1,2 +1,2 @@
-# stunning-octo-succotash
+tunning-octo-succotash
 Обложка книги 
